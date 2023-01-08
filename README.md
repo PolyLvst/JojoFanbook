@@ -1,2 +1,2 @@
 Glitch website ...>
-https://hulking-remarkable-nitrogen.glitch.me/
+https://jojo-fanbook.glitch.me/
